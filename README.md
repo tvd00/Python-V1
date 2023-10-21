@@ -2,7 +2,7 @@ Hey everyone, pythono here. This is my new mod, relatively close to @DrNaNs mod.
 Credits:
 @hiyall360
 @DrNaN                         
-MOD LINK: Currently unpublished. Come back soon!
+MOD LINK:[Click Here :)](https://mega.nz/file/eZxhUAYT#__RT2Xp8NWVEVXO7vrLu1ullZjgxKarRETns3n33Blw)
 
 Q: What does this mod do?
 A: Well let me break it down for you.
