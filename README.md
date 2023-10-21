@@ -1,10 +1,11 @@
 Hey everyone, pythono here. This is my new mod, relatively close to @DrNaNs mod. 
 Credits:
 
-MASSIVE THANKS TO DRNAN FOR NAN MOD V3. MAX CREDITS TO HIM.
+MASSIVE THANKS TO DRNAN FOR Ball To Claw MOD! BIG CREDIT!
 
 
 @hiyall360
+
 @DrNaN                         
 
 MOD LINK: The mod is most likely gonna be out today (Oct 21) or tomorrow. (Oct 22) The reason the links keep getting taken down is because the smuggler where you buy the repair kits and stuff kept on breaking. So i'm just gonna use another mod to create it publicly available again.
