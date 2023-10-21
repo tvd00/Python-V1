@@ -18,4 +18,3 @@ A: Well let me break it down for you.
 4. You can fly with all the School Bags. (Purple, Orange, and Green.)
 5. You can now modify your username to 30 characters instead of the original 21.
 6. You can see that the condition on the school bags are bugged too. Sadly thats just for looks.
-7. Other secret mods! (Hint: Vending Machine, Smuggler, and the Elite Room.)
