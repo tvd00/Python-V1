@@ -16,7 +16,7 @@ A: Well let me break it down for you.
 1. You can fly with Black Wings (They will appear in your Armor Section if i'm not wrong.)
 2. Ice Cream acts like Apple Mod instead. (Prevents pick up maintenance.)
 3. Choco bars have MAX calories instead of the original
-4. You can fly with all the School Bags. (Purple, Orange, and Green.)
+4. You can fly with all the School Bags. (Orange, and Green.) Accidently added infinite fly energy!
 5. You can now modify your username to 30 characters instead of the original 21.
 6. You can see that the condition on the school bags are bugged too. Sadly thats just for looks.
 7. The ball is a claw lmao
