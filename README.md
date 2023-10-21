@@ -18,3 +18,4 @@ A: Well let me break it down for you.
 3. You can fly with all the School Bags. (Purple, Orange, and Green.)
 4. You can now modify your username to 30 characters instead of the original 21.
 5. You can see that the condition on the school bags are bugged too. Sadly thats just for looks.
+6. The ball is a claw lmao
