@@ -8,7 +8,7 @@ MASSIVE THANKS TO DRNAN FOR Ball To Claw MOD! BIG CREDIT!
 
 @DrNaN                         
 
-MOD LINK: The mod is most likely gonna be out today (Oct 21) or tomorrow. (Oct 22) The reason the links keep getting taken down is because the smuggler where you buy the repair kits and stuff kept on breaking. So i'm just gonna use another mod to create it publicly available again.
+MOD LINK: [FINALLY HERE!](https://mega.nz/file/WMQEGZ7A#qu7qCrHilUC3yxt7mkbUseRLXphunP4LyB6H7-GHZWQ)
 
 Q: What does this mod do?
 A: Well let me break it down for you.
