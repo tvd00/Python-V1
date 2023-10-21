@@ -1,5 +1,9 @@
 Hey everyone, pythono here. This is my new mod, relatively close to @DrNaNs mod. 
 Credits:
+
+MASSIVE THANKS TO DRNAN FOR NAN MOD V3. MAX CREDITS TO HIM.
+
+
 @hiyall360
 @DrNaN                         
 MOD LINK:[Click Here :)](https://mega.nz/file/eZxhUAYT#__RT2Xp8NWVEVXO7vrLu1ullZjgxKarRETns3n33Blw)
