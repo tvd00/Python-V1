@@ -7,7 +7,7 @@ MASSIVE THANKS TO DRNAN FOR NAN MOD V3. MAX CREDITS TO HIM.
 @hiyall360
 @DrNaN                         
 
-MOD LINK: Taken down for fixing.. fml :(
+MOD LINK: [Fixed! Click me](https://mega.nz/file/DJoWUT4Y#Sg0VujEKDPtOGewLm3ILNLGgMhgAbUbym7eCEZD1v1w)
 
 Q: What does this mod do?
 A: Well let me break it down for you.
